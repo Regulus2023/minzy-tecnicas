@@ -1,0 +1,1 @@
+# minzy-tecnicas
